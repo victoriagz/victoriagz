@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @victoriagz
-- 🌱 I’m currently learning web developer
+- 🌱 I’m currently learning web development
 - 😄 Pronouns: Vicky
 - ⚡ Fun fact: animal and coffee lover ☕️ 🐾
 
